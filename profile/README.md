@@ -25,5 +25,3 @@ Our Discord server is a dedicated place to collaborate with other game developer
 - [Join the Discord](https://discord.gg/5qcucBs)
 - [Become a Patreon](https://patreon.com/studiouslearning)
 
-
-https://www.youtube.com/channel/UCpF-A3z3loD3mif09ogxg9Q&Sub_Confirmation=1
